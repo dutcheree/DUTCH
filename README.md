@@ -10,3 +10,5 @@ Top interests: Fullmetal Alchemist, Death Note <img align="left" width="30" heig
 DNI list: proshippers, darkshippers, yumeshippers & selfshippers (idk much about these), <img align="left" width="30" height="30" src="https://64.media.tumblr.com/1c0d4cd30e510feca24b60dce3401192/9b360b95216ccc4d-46/s640x960/bf138bb6630457342e3d071ebb0bd1532485d867.pnj"> pedophiles,  any sort of bad shipper,homophobes, racists, transphobes, etc.
 <img align="left" width="30" height="30" src="https://64.media.tumblr.com/1c0d4cd30e510feca24b60dce3401192/9b360b95216ccc4d-46/s640x960/bf138bb6630457342e3d071ebb0bd1532485d867.pnj">
 <img width="550" height="30" src="https://64.media.tumblr.com/cf81e256b862c5c5781ed4dd7f852ecb/e4faf451d7d1f33d-f4/s1280x1920/b880956ac2a9b6183b5d004d0e547b0fc471675e.pnj" />
+https://rentry.co/dutcheree 
+https://dutchling.straw.page
